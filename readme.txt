@@ -11,3 +11,11 @@ fix bug
 gg2
 123456
 在路上
+
+我是gg2
+XXXXXXXXXXXX
+mmmmmmmmmmmmmm
+oooooooooooooo
+rrrrrr
+ssss
+eateat eat
